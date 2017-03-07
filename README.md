@@ -1,1 +1,0 @@
-# cegoddard.github.io
